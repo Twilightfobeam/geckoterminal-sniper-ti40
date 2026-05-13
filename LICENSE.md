@@ -1,4 +1,4 @@
-# 
+# automatic geckoterminal sniper bot | stop-loss + contract-verification is the best geckoterminal sniper bot, featuring stop-loss and contract-verification. Fast, smart, and
 
 
 
